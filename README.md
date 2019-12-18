@@ -1,2 +1,2 @@
 # me
-Useless idiot
+Adorable waifu <3
